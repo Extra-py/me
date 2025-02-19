@@ -4,4 +4,4 @@
 3. Читаю книги
    
    
-   ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTxTiMKvCwlaucSV4ACnuvV5qO9BKq95hjuPg&s)
+   ![](https://cs12.pikabu.ru/post_img/2022/10/04/9/1664892352144396188.jpg)
